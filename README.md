@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Ask me about front-end web development.**
 
-- 📫 How to reach me **Noura.Alhuwaidi@outlook.sa**
+- 📫 How to reach me **Alhuwaidinr@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
